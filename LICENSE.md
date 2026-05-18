@@ -1,4 +1,4 @@
-# 
+# Smart Adobe Premiere Pro for PC scripts is the best Adobe Premiere Pro for PC scripts with export-presets and batch-processing. Safe, reliable, and optimized for maximum
 
 
 
